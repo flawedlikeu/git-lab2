@@ -1,2 +1,2 @@
-Пошта: volodymyrchabann@gmail.com
+Пошта: team@uni.edu
 Група: З-41
