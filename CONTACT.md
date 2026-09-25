@@ -1,2 +1,2 @@
-Пошта: team@uni.edu
+Пошта: ipz@uni.edu
 Група: З-41
